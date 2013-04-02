@@ -1,0 +1,4 @@
+Toko-Online-Sepatu-Murah
+========================
+
+Salesepatu.com adalah Online Shop yang berdomisili di kota Jakarta, Indonesia. Kami menyediakan aneka sepatu dan sandal. Sangat cocok bagi Anda yang ingin tampil gaya dan elegan. Pastikan anda Berbelanja di Toko Online Sepatu Murah kami disini.  Kami fokus pada penjualan Sepatu Casual, Sepatu Futsal, Sepatu Bola, Sepatu Joging, Sepatu Fitness, Sepatu Hiking, Sepatu Tenis, Sepatu Volly, dan Sandaldengan berbagai merek seperti Adidas, Adio, Asics Tiger, Black Master, Crocs, Converse, Circa, DC Shoes, Fred Perry, Levi's, Macbeth, Nike, New Balance, Polo, Quiksilver, Ripcurl, Supra, Toms, KicKers, Vans Authentic, Zara, Bally, Reebok, Globe, Macbeth, Mizuno, Yonex dll.  Semoga dengan keberadaan kami akan memberikan kemudahan bagi Anda untuk melakukan pembelian online dengan cepat dan efisien tanpa membuang-buang waktu pergi ke gerai atau counter sepatu.
